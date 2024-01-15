@@ -1,5 +1,5 @@
 # Pavan Mistry
-[Email](mailto:pavan32100@gmail.com) | [LinkedIn] (https://www.linkedin.com/in/pavan1003/) | [GitHub](https://github.com/pavan1003)
+[Email](mailto:pavan32100@gmail.com) | [LinkedIn](https://www.linkedin.com/in/pavan1003/) | [GitHub](https://github.com/pavan1003)
 
 ---
 
